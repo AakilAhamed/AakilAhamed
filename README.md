@@ -1,5 +1,6 @@
 # 💫 About Me:
-💼I'm currently working on my college's CS forum's website<br>👯‍♂️I'm collaborating with my friends and my seniors.<br>💭Ask me help with Python ,Web3<br>⚡My Superlative: The Best Lad 
+💼I'm currently working on my college's CS forum's website<br>👯‍♂️I'm collaborating with my friends and my seniors.<br>💭Ask me help with Python ,Web3<br>⚡My Superlative: The Best Pal👬 ,
+The MacGyver🧩💡
 
 
 ## 🌐 Socials:
