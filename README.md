@@ -1,5 +1,5 @@
 # 💫 About Me:
-💼Currently learning everything that interests me.<br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
+💼learning everything that interests me.<br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
 
 
 ## 🌐 Socials:
