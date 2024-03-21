@@ -1,5 +1,5 @@
 # 💫 About Me:
-💼learning everything that interests me.<br>🚧 Currently working on a credentials generation browser extension system<br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
+💼learning everything that interests me.<br>🚧 Currently working on a credentials generation web app and a Python library for Data Cleaning<br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
 
 
 ## 🌐 Socials:
