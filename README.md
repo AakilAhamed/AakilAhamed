@@ -1,5 +1,5 @@
 # 💫 About Me:
-💼learning everything that interests me.<br>🚧 Currently working on a Dynamic Pricing System with Machine Learning <br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
+💼learning everything that interests me.<br>🚧 Currently into Machine Learning and Cyber Security <br>👯‍♂️Looking forward to work in more collaborative team projects.<br>⚡My Superlative: The Best Pal👬 , The MacGyver🧩💡
 
 
 ## 🌐 Socials:
